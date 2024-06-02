@@ -1,1 +1,1 @@
-![image](https://github.com/valdislaf/TetrisRainbow/assets/80993576/b3a8c896-f765-4e82-b76a-5b5c151745fd)
+![image](https://github.com/valdislaf/TetrisRainbow/assets/80993576/48e3728b-7041-4d72-aa9b-af834b5fdcd2)
